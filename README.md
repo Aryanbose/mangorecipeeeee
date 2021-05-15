@@ -1,0 +1,1 @@
+Mango Shake is a cool and tempting fruit drink prepared by simply blending ripe mangoes,milk and sugar. 

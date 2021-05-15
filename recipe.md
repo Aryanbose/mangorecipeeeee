@@ -1,0 +1,3 @@
+cream-When you add some whipping cream to any shake you get a thick cream consitency. Un this recipe,you can Add about 1/4 cup heavy cream whipped cream can also be topped over the milkshake while serving.
+Whole milk- whole milk or full-fat milk gives a rich tasting shake.That even-toned milk or skimmed milk can be added.
+Nut-milk- sometimes I also make mango shake with almond or coconut milk. I have earlier shared a Vegan mango milk shake recipe. You can easily make a vegan mango shake by using cashew milk,almond milk,soy milk or coconut milk.
